@@ -6,7 +6,7 @@
 </div>
 
 
-Hey there! I'm Maurellio Christopher Yonathan, but you can call me Maurell.<br>I was an Information Systems student at Telkom University, where I developed a strong passion for technology, innovation, and problem-solving.<br>I enjoy exploring new ideas, working on impactful projects, and continuously learning to improve myself.<br><br>Let's connect and create something amazing! 🚀
+Hey there! I'm Maurellio Christopher Yonathan, but you can call me Maurell.<br>I was an Information Systems student at Telkom University, where I developed a strong passion for technology, innovation, and problem-solving.<br>I enjoy exploring new ideas, working on impactful projects, passionate at AI/ML Engineering and continuously learning to improve myself.<br><br>Let's connect and create something amazing! 🚀
 
 
 ## 🌐 Socials:
